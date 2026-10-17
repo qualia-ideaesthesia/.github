@@ -24,19 +24,4 @@ Perhaps music is more than just sound. Perhaps what we hear is never quite the s
 ## The Artist's Comment
 
 > Every individual perceives the world differently. Everything is not what it seems.
-
 — nitro, BOFU2016
-
-## BMS Impressions
-
-The original BOFU2016 judges praised the track's energetic drop, memorable melodies, and the cohesion between its music, BGA, and chart design.
-
-Some reviewers particularly enjoyed the emotional trance atmosphere and the visual presentation, while others wished for more chart variation or a greater sense of spatial release in the latter half.
-
-**The general impression:** a striking audiovisual experience whose strongest elements are its atmosphere, melody, and presentation.
-
-[Read the original submissions and impressions →](https://manbow.nothing.sh/event/event.cgi?action=More_def&event=110&num=301)
-
----
-
-*Maybe the music is the same for everyone. The experience never is.*
